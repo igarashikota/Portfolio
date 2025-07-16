@@ -11,7 +11,7 @@
 <br>
 <br>
 ・01 ポートフォリオ.pptx<br>
-https://drive.google.com/drive/folders/1-i5nk4mu0k09xeDcVVUHOg_1fm2PG2Ta?usp=sharing <br>
+<https://drive.google.com/drive/folders/1-i5nk4mu0k09xeDcVVUHOg_1fm2PG2Ta?usp=sharing> <br>
 動画やgifが埋め込まれているため単体でご覧に頂けますが、ファイルサイズが100GB以上ですので上記のgoogleドライブへのURLが置いてあります。<br>
 大変申し訳ございませんが、ダウンロードしてご覧いただければ幸いです。<br>
 <br>
